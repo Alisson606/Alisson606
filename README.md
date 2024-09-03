@@ -14,7 +14,7 @@
  
 <br>
  
-### Pra me conhcer melhor  segue a gente na rede abaixo!
+### segue a gente na rede abaixo!
  
 <div> 
 
